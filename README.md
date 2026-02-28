@@ -1,0 +1,2 @@
+# Moli-s-Store
+Poste seus projetos aplicativos arquivos de código HTML tudo graças ao meu novo projeto Moli's Store mande um e-mail a p21212245@outlook.com e para ver seu projeto mande um e-mail para se cadastrar Não se preocupe isto é confiável se você não acredita então coloque outra senha diferente da sua e pronto mais dúvidas é só falar
